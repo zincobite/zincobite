@@ -13,4 +13,5 @@ Github is too complicated so take ts for now ;_;
 <br>
 <br>
 
-[ FEEL FREE TO ADD IF U WNT TO BE OOMF MAYB ] #DISCORD ; zincobite
+[ FEEL FREE TO ADD IF U WNT TO BE OOMF MAYB ]
+-> DISCORD ; zincobite
