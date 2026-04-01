@@ -1,4 +1,4 @@
-## Hi there 👋
+Github is too complicated so take ts for now ;_;
 
 <!--
 **zincobite/zincobite** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
