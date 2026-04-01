@@ -9,17 +9,9 @@
 <sub><sup>. . . IF YOU SEE THESE IT MEANS I AM HAVING A QUIET DAY OR FEELING OVERWHELMED . DON'T TAKE IT PERSONALLY !</sup></sub>
 <br>
 <br>
-<p align="center"> ABOUT ME !! </p>
-<br> MULTIFANDOM AND MULTISHIPERR ! GROSS/ILLEGAL SHIPS DNI ;_;<br>
-<sub>I SOMETIMES SPEND MOST OF MY TIME IN PONYTOWN TO HANG OUT WITH OOMFS / FRIENDS OR MAKE SKINS . I MOSTLY PLAY ROBLOX !</sub>
-<br> <sub>I STRUGGLE WITH SOCIAL / TONE CUES , TONE INDICATORS HELP ! APOLOGIES IF I SOUND DRY THOUGH</sub>
-<br> no but higk what else do i add here
-<br> Have a loveuhy day
-<br>
-<br>
 <p align="center"> FANDOMS </p>
-<br>wip
-<br>
+<br>WIP
+<br>no but highk what else do i add here
 <br>
 <br>
 [ FEEL FREE TO ADD IF U WNT TO BE OOMFS/FREINDS MAYB ]
