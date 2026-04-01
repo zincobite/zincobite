@@ -1,8 +1,8 @@
 ## Github is too complicated so take ts for now ;_;
 <br>
-### AC : OuL116 / X
+AC : OuL116 / X
+<br>
 BPD + ADD [ ADHD-I ] Plz be patient ^_^
-
 <br>
 <br>
 <br>
@@ -17,4 +17,4 @@ BPD + ADD [ ADHD-I ] Plz be patient ^_^
 <br>
 
 [ FEEL FREE TO ADD IF U WNT TO BE OOMF MAYB ]
-### -> DISCORD ; zincobite
+<br>-> DISCORD ; zincobite
