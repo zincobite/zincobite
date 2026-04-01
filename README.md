@@ -1,12 +1,12 @@
 ## Github is too complicated so take ts for now ;_;
 <br>
-*AC : OuL116 / X*
----
-*BPD + ADD [ ADHD-I ] Plz be patient ^_^*
-<br> !! x C + H . TC . SEMI - NV <3
-<br> . . . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUD . IWC T_T
-<br>
-<br>
+<p align="center"> AC : oul116 / X </p>
+<p align="center"> . . . </p>
+
+**!!! x C+H . TC . SEMI - NV <3**<br>
+<Sub>*ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID . IWC . .*</SUB><br>
+<sub><sup>. . . IF YOU SEE THESE IT MEANS I AM HAVING A QUIET DAY OR FEELING OVERWHELMED . DON'T TAKE IT PERSONALLY !</sup></sub>
+<br> <Sub>> i AM semi - NV , i might chat more if i can think of respond fast !! if that makes any sense . tho i'm usually quiet because i'm a slow / bad responder</Sub>
 <br>
 <br>
 <br>
