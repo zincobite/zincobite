@@ -3,7 +3,7 @@
 <p align="center"> PFP CREDS : oul116 / X </p>
 <p align="center"> . . . </p>
 
-**!!! x C+H . TC . INT . W21 -> off-tab sometimes)**
+**!!! x C+H . CUDCOMF . INT . W21 -> off-tab sometimes)**
 <br> <Sub>> i am also semi - NV but its cause im a bad responder ookaye . .</Sub><br>
  ___ <br>
 <Sub>*T_T . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID . IWC*</SUB><br>
