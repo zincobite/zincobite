@@ -10,10 +10,11 @@
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
 <br>
 <br>
-<br>no but highk what else do i add here
 <br>
 <br>
-<br>
+<br>Im a freak w the freaky font /jjjj dont jump me pleas
+<br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !!
 <br>Im usually playinf ponytowne with peak friedns <3 if not im making skins or chilling
 <br>
+<br> no but highk what else do i add here
 <br> WIP for now . . github is tooo harrdd !! /ref
