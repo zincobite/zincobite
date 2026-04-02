@@ -4,7 +4,7 @@
 <p align="center"> . . . </p>
 
 **!!! x C+H . CUDCOMF . INT . W21 -> off-tab sometimes)**
-<br> <Sub>> i am also semi - NV but its cause im a bad responder ookaye . .</Sub><br>
+<br> <Sub>> i am also semi - NV but its cause im a bad responder ookaye . . sorry if i take a while to respond !!</Sub><br>
  ___ <br>
 <Sub>*T_T . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID . IWC*</SUB><br>
 <sub><sup>. . . IF YOU SEE THESE IT MEANS I AM HAVING A QUIET DAY OR FEELING OVERWHELMED . DON'T TAKE IT PERSONALLY !</sup></sub>
