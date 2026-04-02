@@ -13,7 +13,7 @@
 <br>
 <br>
 <br>
-<br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !!
+<br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !! im a shy person ing geneeral
 <br>i know alot of. fandoms yes
 <br>Im a freak w the freaky font /JJJJJJ TRUST dont jump me pleas
 <br>Im usually playinf ponytowne with peak friedns <3 if not im making skins or chilling
