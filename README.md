@@ -9,8 +9,6 @@
 <sub><sup>. . . IF YOU SEE THESE IT MEANS I AM HAVING A QUIET DAY OR FEELING OVERWHELMED . DON'T TAKE IT PERSONALLY !</sup></sub>
 <br>
 <br>
-<p align="center"> FANDOMS </p>
-<br>WIP
 <br>no but highk what else do i add here
 <br>
 <br>
