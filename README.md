@@ -12,5 +12,4 @@
 <br>no but highk what else do i add here
 <br>
 <br>
-[ FEEL FREE TO ADD IF U WNT TO BE OOMFS/FREINDS MAYB ]
-<br>-> DISCORD ; zincobite
+<br> WIP for now . . github is tooo harrdd !! /ref
