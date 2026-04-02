@@ -11,10 +11,10 @@
 <br>
 <br>
 <br>
-<br>
-<br>Im a freak w the freaky font /jjjj dont jump me pleas
+<br>i know alot of. fandoms yes
+<br>Im a freak w the freaky font /JJJJJJ TRUST dont jump me pleas
 <br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !!
 <br>Im usually playinf ponytowne with peak friedns <3 if not im making skins or chilling
-<br>
 <br> no but highk what else do i add here
+<br>
 <br> WIP for now . . github is tooo harrdd !! /ref
