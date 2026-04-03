@@ -3,15 +3,18 @@
 <p align="center"> PFP CREDS : oul116 / X </p>
 <p align="center"> . . . </p>
 
-**!!! x C+H . CUDCOMF . INT . W21 -> (off-tab sometimes)**
+
+**<p align="center"> !!! x C+H . CUDCOMF . INT . W21 -> (off-tab sometimes)**
 <br> <Sub>> Also SEMI - NV but its cause im a bad responder ookaye . . sorry if i take a while to respond or don't respond at all !!</Sub><br>
  ___ <br>
 <Sub>*. . . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID / DNIUF . IWC*</SUB><br>
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
 <br>
+<br>
+<br> ps .. I'M NOT YELLING IT'S JUST HOW I TYPE SOMETIMES ! // </p>
 <br>════════════════════════════════════════════════════════════════════════════════
 <br><p align="center"> ⊹₊⟡⋆ </p>
-<h2 align="center"> $\color{red}{\text{" HOW MUCH POISON DO YOU THINK THEY CAN HANDLE? "}}$ </h2>
+<h2 align="center"> $\color{red}{\text{" HOW MUCH POISON DO YOU THINK THEY CAN HANDLE ? "}}$ </h2>
 
 <br>‎ ![beautiful wife subspace](https://github.com/user-attachments/assets/06de9e82-0ed6-4a66-a443-b88c599b7b4b)
 <br>
@@ -20,6 +23,6 @@
 <br>
 <br>
 <br>════════════════════════════════════════════════════════════════════════════════
+<br> Visit my strawpage if u wannan know kinda more abt me . . or if u wanna 'sign my straw'. just scroll a little ! you'll see a AMA and art section (˶˃ ᵕ ˂˶) .ᐟ.ᐟ
 <br>
-<br>
-<br>----
+<br>like and subscribe to be swag
