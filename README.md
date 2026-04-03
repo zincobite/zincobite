@@ -11,7 +11,7 @@
 <br>
 <br>
 <br>
-<br> <p align="center"> [strw](https://zincokiwi.straw.page/)
+<br> <p align="center"> [strw](https://zincokiwi.straw.page) ˗ˏˋ ★ ˎˊ˗ [disc](https://discord.com/users/807894914498166815)
 <br>----
 <br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !! im a shy person ing geneeral
 <br>i know alot of. fandoms yes
