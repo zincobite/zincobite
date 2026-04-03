@@ -10,13 +10,12 @@
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
 <br>
 <br>════════════════════════════════════════════════════════════════════════════════
-<br>
-<br>
-<p align="center"> $\color{red}{\text{⊹₊⟡⋆ " HOW MUCH POISON DO YOU THINK THEY CAN HANDLE? "}}$ </p>
+<br><p align="center"> ⊹₊⟡⋆ </p>
+<h2 align="center"> $\color{red}{\text{" HOW MUCH POISON DO YOU THINK THEY CAN HANDLE? "}}$ </h2>
 
 <br>‎ ![beautiful wife subspace](https://github.com/user-attachments/assets/06de9e82-0ed6-4a66-a443-b88c599b7b4b)
 <br>
-<br> <p align="center"> ⌞ LINKS ⌝ </p>
+<br> <p align="center"> ⌞ ART CRED : VerdesArt / X ⌝ </p>
 <br> <p align="center"> [STRAWPAGE](https://zincokiwi.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ˗ˏˋ ★ ˎˊ˗‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  [DISCORD](https://discord.com/users/807894914498166815)
 <br>
 <br>
