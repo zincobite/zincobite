@@ -11,8 +11,8 @@
 <br>
 <br>
 <br>
-<br>
-<br>
+<br>ATA , STRAWPAGE AND DISCORD COMING SOON . IM LAZYYYEYE !!!
+<br>----
 <br>I SPEAK IN CAPS SOMETIMES PLSXZZS IM NOT YELLING ITS JUST HOW I TYPE SOMETIMES, APOLOGIES IF I SOUND DRY W MY RESPONSES !! im a shy person ing geneeral
 <br>i know alot of. fandoms yes
 <br>Im a freak w the freaky font /JJJJJJ TRUST dont jump me pleas
