@@ -1,4 +1,4 @@
-## Github is too complicated so take ts for now ;_;
+## Github is too complicated so take ts for now ;_; ( Github is tooo harrrrdd !! / REF )
 <br>
 <p align="center"> PFP CREDS : oul116 / X </p>
 <p align="center"> . . . </p>
