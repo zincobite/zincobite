@@ -11,7 +11,7 @@
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
 <br>
 <br>
-<br> ps .. I'M NOT YELLING IT'S JUST HOW I TYPE SOMETIMES ! // </p>
+<br> ps .. I'M NOT YELLING IT'S JUST HOW I TYPE SOMETIMES ! </p>
 <br>════════════════════════════════════════════════════════════════════════════════
 <br><p align="center"> ⊹₊⟡⋆ </p>
 <h2 align="center"> $\color{red}{\text{" HOW MUCH POISON DO YOU THINK THEY CAN HANDLE ? "}}$ </h2>
