@@ -5,7 +5,7 @@
 
 
 **<p align="center"> !!! x C+H . CUDCOMF . INT . W21 -> (off-tab sometimes)**
-<br> <Sub>> Also SEMI - NV but its cause im a bad responder ookaye . . sorry if i take a while to respond or don't respond at all !!</Sub><br>
+<br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !!</Sub><br>
  ___ <br>
 <Sub>*. . . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID / DNIUF . IWC*</SUB><br>
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
