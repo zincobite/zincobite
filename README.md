@@ -31,6 +31,10 @@
 <br>════════════════════════════════════════════════════════════════════════════════
 <br>
 <br> 
+<br> TAKING **SLIGHT** INSPO FROM MY COSPLAYS ( PONIES ) ARE PERFECTLY FINE, *BUT POLITELY .. 
+<br> DON'T TAKE HEAVY INSPO OR / AND COPY MY DESIGNS*
+<br>
+<br>
 <br>
 <br>
 <br>like and subscribe to be swag
