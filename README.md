@@ -5,13 +5,15 @@
 
 
 **<p align="center"> !!! x C+H FREELY . CUDCOMF . INT . W21 -> (off-tab sometimes)**
-<br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !!</Sub><br>
+<br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !!
+<br>Im a multishipper idm any ships (except for gross/illegal ships), added this because idm ship c+h or whatev its calld</Sub>
+<br>
  ___ <br>
 <Sub>*. . . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID / DNIUF . IWC*</SUB><br>
 <sub><sup>T_T . IF YOU SEE THESE DON'T TAKE IT PERSONALLY IT JUST MEANS IM OVERSTIMULATED ! C: I SWITCH TAGS OFTEN . NO WORRIES IF U THINK I'LL SUDDENLY TAG HOP TO DNI , I MOSTLY PLAY PONYTOWN IN A /POS MOOD</sup></sub>
 <br>
 <br>
-<br> ps .. I'M NOT YELLING IT'S JUST HOW I TYPE SOMETIMES ! </p>
+<br> ps .. I'M NOT YELLING IT'S JUST HOW I TYPE SOMETIMES !! IM ALSO TYPO-PRONE</p>
 <br>════════════════════════════════════════════════════════════════════════════════
 <br>
 <br><p align="center"> ⊹₊⟡⋆ </p>
