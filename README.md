@@ -4,7 +4,7 @@
 <p align="center"> . . . </p>
 
 
-**<p align="center"> !!! x C+H . CUDCOMF . INT . W21 -> (off-tab sometimes)**
+**<p align="center"> !!! x C+H FREELY . CUDCOMF . INT . W21 -> (off-tab sometimes)**
 <br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !!</Sub><br>
  ___ <br>
 <Sub>*. . . ON SOME OCCASIONS [ CHECK TAG !! ] ; DNIUID / DNIUF . IWC*</SUB><br>
