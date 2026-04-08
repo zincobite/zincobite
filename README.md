@@ -25,8 +25,8 @@
 <br> <p align="center"> [STRAWPAGE](https://zincokiwi.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ˗ˏˋ ★ ˎˊ˗‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  [DISCORD](https://discord.com/users/807894914498166815)
 <br>
 <br>
-<br> Visit my strawpage if u wannan know kinda more abt me . . or if u wanna 'sign my straw' .
-<br> ( i have no idea why i linked my discord. but i might change it to roblox if im not lazy )
+<br> Visit my strawpage if u wannan know kinda more abt me . . or if u wanna 'sign my straw' . (˶ˆᗜˆ˵)
+<br> [ i have no idea why i linked my discord. but i might change it to roblox if im not lazy ]
 <br>
 <br>════════════════════════════════════════════════════════════════════════════════
 <br>
