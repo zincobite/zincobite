@@ -5,7 +5,7 @@
 
 
 **<p align="center"> !!! x C+H FREELY . CUDCOMF . INT . W21 -> (off-tab sometimes)**
-<br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !!
+<br> <Sub>> Also SEMI - NV but its cause im a bad responder or prefer to listen ookaye . . sorry if i take a while to respond or don't respond at all !! im a shy person o_o
 <br>Im a multishipper idm any ships (except for gross/illegal ships), added this because idm ship c+h or whatev its calld</Sub>
 <br>
  ___ <br>
@@ -26,7 +26,7 @@
 <br>
 <br>
 <br> Visit my strawpage if u wannan know kinda more abt me . . or if u wanna 'sign my straw' . (˶ˆᗜˆ˵)
-<br> [ i have no idea why i linked my discord. but i might change it to roblox if im not lazy ]
+<br> [ Add me if yo wNna be friedns.. ^_^]
 <br>
 <br>════════════════════════════════════════════════════════════════════════════════
 <br>
